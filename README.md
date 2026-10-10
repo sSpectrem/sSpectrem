@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1542273082872299520/1546630761887571978/0907-ezgif.com-optimize.gif?ex=6acb5464&is=6aca02e4&hm=e54abe568aee15c1092d0bd94f15bcbfd431a7874d20a05b1010102ce94ecdc9&
+bro
