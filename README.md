@@ -1,1 +1,1 @@
-hi hi if u my discord friends and u see this hihihihi 
+check repository "z" to see my art 😳😳
